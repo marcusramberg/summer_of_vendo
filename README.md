@@ -6,6 +6,12 @@ Machine produced by http://www.sandenvendo.it/
 
 ## Model information
 
+* Model SVE GSP
+
+Some photos here:
+
+http://www.flickr.com/photos/marcusramberg/sets/72157634192791245/
+
 
 http://en.wikipedia.org/wiki/Multidrop_bus
 
